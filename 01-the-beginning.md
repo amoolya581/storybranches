@@ -1,0 +1,3 @@
+# Chapter 1 — The Beginning
+
+The village slept beneath a silver moon...
